@@ -1,5 +1,5 @@
 # About me
-I´m currently learning vibe coding, sewing, and furniture restoration. 😄
+I´m enjoying vibe coding, so far. Currently learning sewing and furniture restoration. 😄
 
 <!--
 
